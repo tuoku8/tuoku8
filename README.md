@@ -5,9 +5,9 @@
 ------
 :heart: :point_right: 【地址二】 ：https://www.tkb16.com/welcome3.html
 ------
-:heart: :point_right: 【地址三】 ：https://www.tkb17.com
+:heart: :point_right: 【地址三】 ：https://www.tkb18.com/welcome3.html
 ------
-:heart: :point_right: 【地址四】 ：https://www.tkb18.com/welcome3.html
+:heart: :point_right: 【地址四】 ：https://www.tkb17.com
 ------
 :heart: :point_right: 【地址五】 ：https://www.tkb19.com
 ------
