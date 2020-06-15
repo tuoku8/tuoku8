@@ -1,9 +1,9 @@
 # tuoku8
 :sunglasses::sunglasses:脱裤吧 地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【地址一】 ：https://www.tkb001.com
+:heart: :point_right: 【地址一】 ：https://www.tkb006.com
 ------
-:heart: :point_right: 【地址二】 ：https://www.tkb002.com
+:heart: :point_right: 【地址二】 ：https://www.tkb007.com
 ------
 :heart: :point_right: 【地址三】 ：https://www.tkb003.com
 ------
