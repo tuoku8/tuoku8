@@ -5,11 +5,11 @@
 ------
 :heart: :point_right: 【地址二】 ：https://www.tkb013.xyz
 ------
-:heart: :point_right: 【地址三】 ：https://www.tkb000.life
+:heart: :point_right: 【地址三】 ：https://tk8.life
 ------
-:heart: :point_right: 【地址四】 ：https://www.tkb013.xyz
+:heart: :point_right: 【地址四】 ：http://tk8.live
 ------
-:heart: :point_right: 【地址五】 ：https://www.tkb010.xyz
+:heart: :point_right: 【地址五】 ：http://tklu.cc
 ------
 :heart: :point_right: 【potato】 ：tuokuba520
 ------
