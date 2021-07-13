@@ -3,13 +3,13 @@
 ==
 :heart: :point_right: 【本站APP下载地址防迷路】 ：https://static.tk8.site/app/tk8.apk
 ------
-:heart: :point_right: 【地址二】 ：https://www.tkb013.xyz
+:heart: :point_right: 【地址二】 ：https://tk8.info
 ------
-:heart: :point_right: 【地址三】 ：https://tk8.life
+:heart: :point_right: 【地址三】 ：https://tk8.shop
 ------
 :heart: :point_right: 【地址四】 ：http://tk8.live
 ------
-:heart: :point_right: 【地址五】 ：http://tklu.cc
+:heart: :point_right: 【地址五】 ：http://tk8.online
 ------
 :heart: :point_right: 【potato】 ：tuokuba520
 ------
