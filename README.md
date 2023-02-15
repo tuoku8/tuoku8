@@ -11,6 +11,11 @@
 ------
 :heart: :point_right: 【地址五】 ： http://tkb779.life
 
+最近本站被无良网站劫持严重，请用户更改路由器设置防止劫持：
+
+教程如下 IOS防劫教程：https://sfkai.com/#ios-mobile
+
+安卓防劫教程：https://sfkai.com/#android-mobile
 ------
 :heart: :point_right: 【potato】 ：tuokuba520
 
