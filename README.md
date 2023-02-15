@@ -15,7 +15,7 @@ point_right: 【地址二】：https://tkb226.life
 最近本站被无良网站劫持严重，请用户更改路由器设置防止劫持：
 ------
 
-教程如下 IOS防劫教程：https://sfkai.com/#ios-mobile
+教程如下 苹果防劫教程：https://sfkai.com/#ios-mobile
 ------
 
 安卓防劫教程：https://sfkai.com/#android-mobile
