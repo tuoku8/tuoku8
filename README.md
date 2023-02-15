@@ -3,13 +3,13 @@
 ==
 :heart: :point_right: 【本站安卓APP下载地址】 ： https://static.tkbcfv.life/app/tk8.apk 网页被墙打不开APP可以开
 ------
-💛point_right: 【地址二】：https://tkb666.life
+💛point_right: 【地址二】：https://tkb226.life
 ------
-:heart: :point_right: 【地址三】 ：https://tkb55.life
+:heart: :point_right: 【地址三】 ：https://tkb669.life
 -----
 :heart: :point_right: 【地址四】 ：http://tkb999.life
 ------
-:heart: :point_right: 【地址五】 ： http://tkb777.life
+:heart: :point_right: 【地址五】 ： http://tkb779.life
 
 ------
 :heart: :point_right: 【potato】 ：tuokuba520
