@@ -1,7 +1,7 @@
 # tuoku8
 :sunglasses::sunglasses:脱裤吧 地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【本站安卓APP下载地址】 ： https://static.tkbcfv.life/app/tk8.apk 网页被墙打不开APP可以开
+:heart: :point_right: 【本站安卓APP下载地址】 ： https://static.tkbk8o.life/app/tk8.apk 网页被墙打不开APP可以开
 ------
 point_right: 【地址二】：https://tkb226.life
 ------
