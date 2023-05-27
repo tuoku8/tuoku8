@@ -5,11 +5,11 @@
 ------
 point_right: 【地址二】：https://tkb2255.life
 ------
-:heart: :point_right: 【地址三】 ：https://tkb1155.life
+:heart: :point_right: 【地址三】 ：https://tkb2288.life
 -----
 :heart: :point_right: 【地址四】 ：http://tkb2266.life
 ------
-:heart: :point_right: 【地址五】 ： http://tkb1177.life
+:heart: :point_right: 【地址五】 ： http://tkb2277.life
 ------
 
 最近本站被无良网站劫持严重，请用户更改路由器设置防止劫持：
