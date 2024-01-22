@@ -7,9 +7,8 @@ point_right: 【地址二】：https://www.tkbsrg.life
 ------
 :heart: :point_right: 【地址三】 ：https://www.tkbo6j.life/
 -----
-:heart: :point_right: 【地址四】 ：https://www.tkbxz1.life
-------
-:heart: :point_right: 【地址五】 ：https://www.tkbw58.life
+:heart: :point_right: 【地址四】 ：https://www.tkbh5r.life
+:heart: :point_right: 【地址五】 ：https://www.tkbguy.life
 ------
 
 最近本站被无良网站劫持严重，请用户更改路由器设置防止劫持：
