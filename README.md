@@ -3,11 +3,11 @@
 ==
 :heart: :point_right: 【本站安卓APP下载地址】 ：https://static.tkbz8y.life/app/tk8.apk网页被墙打不开APP可以开
 ------
-point_right: 【地址二】：https://www.tkbz8y.life
+point_right: 【地址二】：https://www.tkbmxb.life
 ------
-:heart: :point_right: 【地址三】 ：https://www.tkbo6j.life/
+:heart: :point_right: 【地址三】 ：https://www.tkbpg7.life
 -----
-:heart: :point_right: 【地址四】 ：https://www.tkbh5r.life
+:heart: :point_right: 【地址四】 ：https://www.tkbz8y.life
 :heart: :point_right: 【地址五】 ：https://www.tkb5n9.life
 ------
 
